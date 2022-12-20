@@ -1,1 +1,1 @@
-## I used to work for an origami company but they folded.
+## Why do cows wear bells? Because their horns don't work.
