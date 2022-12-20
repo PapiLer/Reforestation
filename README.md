@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
