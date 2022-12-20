@@ -23,16 +23,16 @@ jobs:
           
       - name: Commit changes
         run: |
-          ${{ secrets.cr }}
-          git config --local user.email "angga@linuxmail.org"
-          git config --local user.name "Angga"
+          echo "https://${{ secrets.GH_NAME }}:${{ secrets.GH_TOKEN }}@github.com" > ~/.git-credentials
+          git config --local user.email ${{ secrets.GH_MAIL }}
+          git config --local user.name ${{ secrets.GH_NAME }}
           git config --global --add safe.directory /github/workspace
-          git add -A
-          git commit -s -am "$(curl -s https://raw.githubusercontent.com/ngerakines/commitment/main/commit_messages.txt | shuf -n 1)"
+          git add README.md
+          git commit -s -am "$(curl -s https://whatthecommit.com/index.txt)"
           
       - name: GitHub Push
         uses: ad-m/github-push-action@master
         with:
           force: true
           directory: "."
-          github_token: ${{ secrets.GITHUB_TOKEN }}
+          github_token: ${{ secrets.GH_TOKEN }}
