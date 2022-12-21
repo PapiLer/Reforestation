@@ -1,1 +1,1 @@
-## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
+## A magician was driving down the street and then he turned into a driveway.
