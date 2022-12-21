@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
