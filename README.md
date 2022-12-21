@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## Where do you learn to make banana splits? At sundae school.
