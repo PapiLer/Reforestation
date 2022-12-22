@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## What is a witch's favorite subject in school? Spelling!
