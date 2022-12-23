@@ -1,2 +1,1 @@
-##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
-## 
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
