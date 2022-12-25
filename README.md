@@ -1,1 +1,1 @@
-## What lies at the bottom of the ocean and twitches? A nervous wreck.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
