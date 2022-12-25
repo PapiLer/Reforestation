@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## A magician was driving down the street and then he turned into a driveway.
