@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## What did the ocean say to the beach? Thanks for all the sediment.
