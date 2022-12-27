@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## My boss told me to have a good day... so I went home.
