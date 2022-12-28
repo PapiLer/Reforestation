@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
