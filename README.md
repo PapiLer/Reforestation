@@ -1,2 +1,1 @@
-##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
-## 
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
