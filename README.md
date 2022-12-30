@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
