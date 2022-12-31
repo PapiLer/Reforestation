@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
