@@ -1,1 +1,1 @@
-## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
+## Why did the barber win the race? He took a short cut.
