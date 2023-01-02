@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## Why are skeletons so calm? Because nothing gets under their skin.
