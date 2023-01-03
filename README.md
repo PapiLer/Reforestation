@@ -1,1 +1,2 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## Where do cats write notes?
+## Scratch Paper!
