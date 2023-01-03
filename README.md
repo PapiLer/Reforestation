@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
