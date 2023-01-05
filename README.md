@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## How do you fix a broken pizza? With tomato paste.
