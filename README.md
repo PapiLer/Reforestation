@@ -1,1 +1,1 @@
-## When you have a bladder infection, urine trouble.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
