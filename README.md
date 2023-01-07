@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
