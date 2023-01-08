@@ -1,1 +1,1 @@
-## Why was the broom late for the meeting? He overswept.
+## I used to hate facial hair, but then it grew on me.
