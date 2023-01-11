@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
