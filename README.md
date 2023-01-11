@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
