@@ -1,1 +1,1 @@
-## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
+## Why didn’t the orange win the race? It ran out of juice.
