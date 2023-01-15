@@ -1,1 +1,1 @@
-## They're making a movie about clocks. It's about time
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
