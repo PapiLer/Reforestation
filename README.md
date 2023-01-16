@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## People who don't eat gluten are really going against the grain.
