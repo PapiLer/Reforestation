@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## How do you make holy water? You boil the hell out of it.
