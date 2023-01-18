@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## I considered building the patio by myself. But I didn't have the stones.
