@@ -1,1 +1,1 @@
-## I’ve just been reading a book about anti-gravity, it’s impossible to put down!
+## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
