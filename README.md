@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
