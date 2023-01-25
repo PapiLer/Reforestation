@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## What's red and bad for your teeth? A Brick.
