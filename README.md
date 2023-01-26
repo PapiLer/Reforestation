@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
