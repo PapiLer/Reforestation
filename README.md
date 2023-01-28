@@ -1,1 +1,1 @@
-## What do you call cheese by itself? Provolone.
+## Why are fish easy to weigh? Because they have their own scales.
