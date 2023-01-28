@@ -1,3 +1,1 @@
-## Doctor: Do you want to hear the good news or the bad news?
-## Patient: Good news please.
-## Doctor: we're naming a disease after you.
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
