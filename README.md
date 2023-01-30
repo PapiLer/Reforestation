@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
