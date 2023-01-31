@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## How come a man driving a train got struck by lightning? He was a good conductor.
