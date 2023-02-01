@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## You can't run through a camp site. You can only ran, because it's past tents.
