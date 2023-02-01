@@ -1,1 +1,1 @@
-## You can't run through a camp site. You can only ran, because it's past tents.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
