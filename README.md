@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
