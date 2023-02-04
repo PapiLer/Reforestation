@@ -1,1 +1,1 @@
-## What biscuit does a short person like? Shortbread. 
+## Why did the half blind man fall in the well? Because he couldn't see that well!
