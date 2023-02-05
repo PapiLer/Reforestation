@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
