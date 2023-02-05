@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
