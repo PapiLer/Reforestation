@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## Have you heard about corduroy pillows?  They're making headlines!
