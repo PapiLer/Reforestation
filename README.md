@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
