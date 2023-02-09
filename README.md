@@ -1,1 +1,1 @@
-## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
+## My son is studying to be a surgeon, I just hope he makes the cut.
