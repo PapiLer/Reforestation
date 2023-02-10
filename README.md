@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## Have you heard about corduroy pillows?  They're making headlines!
