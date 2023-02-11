@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Why was the picture sent to prison? It was framed.
