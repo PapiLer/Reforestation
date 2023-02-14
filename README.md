@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
