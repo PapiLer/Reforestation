@@ -1,1 +1,1 @@
-## What do you call two barracuda fish?  A Pairacuda!
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
