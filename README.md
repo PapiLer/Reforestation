@@ -1,1 +1,1 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
