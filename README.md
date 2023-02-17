@@ -1,1 +1,1 @@
-## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
