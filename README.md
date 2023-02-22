@@ -1,1 +1,1 @@
-## Why does Han Solo like gum? It's chewy!
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
