@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## What do you call two guys hanging out by your window? Kurt & Rod.
