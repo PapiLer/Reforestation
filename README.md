@@ -1,1 +1,1 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
