@@ -1,1 +1,1 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
