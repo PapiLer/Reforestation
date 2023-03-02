@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## Slept like a log last night … woke up in the fireplace.
