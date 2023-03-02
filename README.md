@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## Why was the strawberry sad? Its parents were in a jam.
