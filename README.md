@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## I used to hate facial hair, but then it grew on me.
