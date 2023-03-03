@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
