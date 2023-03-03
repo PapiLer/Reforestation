@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## People are making apocalypse jokes like there’s no tomorrow.
