@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
