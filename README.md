@@ -1,1 +1,1 @@
-## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
