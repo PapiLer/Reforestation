@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## Why was it called the dark ages? Because of all the knights. 
