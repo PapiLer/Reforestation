@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## Why do cows not have toes? They lactose!
