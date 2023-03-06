@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
