@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## What's brown and sticky? A stick.
