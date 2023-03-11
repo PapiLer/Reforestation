@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## What did the mountain climber name his son? Cliff.
