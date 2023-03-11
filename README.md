@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
