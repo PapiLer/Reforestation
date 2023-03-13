@@ -1,1 +1,1 @@
-## What do you call a guy lying on your doorstep? Matt.
+## The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
