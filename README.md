@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
