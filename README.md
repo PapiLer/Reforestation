@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
