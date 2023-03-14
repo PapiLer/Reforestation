@@ -1,1 +1,1 @@
-## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
