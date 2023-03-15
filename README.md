@@ -1,1 +1,1 @@
-## So, I heard this pun about cows, but it’s kinda offensive so I won’t say it. I don’t want there to be any beef between us. 
+## Doctor you've got you help me, I'm addicted to twitter. Doctor: I don't follow you.
