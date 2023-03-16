@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## How do you make holy water? You boil the hell out of it.
