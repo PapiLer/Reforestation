@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## What do you call a duck that gets all A's? A wise quacker.
