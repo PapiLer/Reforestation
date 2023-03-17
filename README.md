@@ -1,1 +1,1 @@
-## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
