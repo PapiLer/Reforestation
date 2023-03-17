@@ -1,1 +1,1 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
