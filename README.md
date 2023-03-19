@@ -1,1 +1,1 @@
-## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
