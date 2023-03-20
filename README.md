@@ -1,1 +1,1 @@
-## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
+## Why do we tell actors to “break a leg?” Because every play has a cast.
