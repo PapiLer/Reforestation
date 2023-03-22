@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
