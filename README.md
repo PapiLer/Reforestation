@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
