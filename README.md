@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## To the person who stole my anti-depressant pills: I hope you're happy now.
