@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
