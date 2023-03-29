@@ -1,1 +1,1 @@
-## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
+## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
