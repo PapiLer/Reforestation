@@ -1,1 +1,1 @@
-## What do you call an eagle who can play the piano? Talonted!
+## I decided to sell my Hoover… well it was just collecting dust.
