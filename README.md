@@ -1,1 +1,1 @@
-## I went to the doctor today and he told me I had type A blood but it was a type O.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
