@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## What has ears but cannot hear? A field of corn.
