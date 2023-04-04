@@ -1,1 +1,3 @@
-## Where do bees go to the bathroom?  The BP station.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
