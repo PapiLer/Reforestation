@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## When does a joke become a dad joke? When it becomes apparent.
