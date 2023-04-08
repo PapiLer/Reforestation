@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## Why are pirates called pirates? Because they arrr!
