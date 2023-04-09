@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Don't tell secrets in corn fields. Too many ears around.
