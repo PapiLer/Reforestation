@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
