@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
