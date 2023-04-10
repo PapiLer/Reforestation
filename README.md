@@ -1,1 +1,1 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
