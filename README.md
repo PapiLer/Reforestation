@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## This furniture store keeps emailing me, all I wanted was one night stand!
