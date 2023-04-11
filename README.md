@@ -1,1 +1,1 @@
-## I think circles are pointless.
+## Where do young cows eat lunch? In the calf-ateria.
