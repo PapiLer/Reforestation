@@ -1,1 +1,1 @@
-## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
