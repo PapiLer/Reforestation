@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## No matter how kind you are, German children are kinder.
