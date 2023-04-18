@@ -1,1 +1,1 @@
-## R.I.P. boiled water. You will be mist.
+## My dentist is the best, he even has a little plaque!
