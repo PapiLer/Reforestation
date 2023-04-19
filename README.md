@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## I used to hate facial hair, but then it grew on me.
