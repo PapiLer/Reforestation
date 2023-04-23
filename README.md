@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## What do you call two guys hanging out by your window? Kurt & Rod.
