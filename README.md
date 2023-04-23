@@ -1,1 +1,2 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## What's large, grey, and doesn't matter?
+## An irrelephant.
