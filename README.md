@@ -1,1 +1,1 @@
-## Someone broke into my house last night and stole my limbo trophy. How low can you go?
+## I went to the doctor today and he told me I had type A blood but it was a type O.
