@@ -1,1 +1,1 @@
-## Have you ever seen fruit preserves being made? It's jarring.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
