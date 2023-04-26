@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## What does an angry pepper do? It gets jalapeño face.
