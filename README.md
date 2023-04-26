@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
