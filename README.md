@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## I thought about going on an all-almond diet. But that's just nuts.
