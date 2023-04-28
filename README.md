@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
