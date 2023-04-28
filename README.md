@@ -1,1 +1,1 @@
-## How many apples grow on a tree? All of them!
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
