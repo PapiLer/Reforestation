@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## There's not really any training for garbagemen. They just pick things up as they go.
