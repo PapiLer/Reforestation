@@ -1,1 +1,1 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
