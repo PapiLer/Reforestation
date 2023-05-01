@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## A termite walks into a bar and asks “Is the bar tender here?”
