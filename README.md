@@ -1,1 +1,1 @@
-## What did the pirate say on his 80th birthday? Aye Matey!
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
