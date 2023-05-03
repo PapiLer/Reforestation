@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
