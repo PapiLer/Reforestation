@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## What’s brown and sounds like a bell? Dung!
