@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## Me and my mates are in a band called Duvet. We're a cover band.
