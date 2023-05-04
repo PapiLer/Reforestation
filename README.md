@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
