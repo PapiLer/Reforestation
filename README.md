@@ -1,1 +1,1 @@
-## You can't run through a camp site. You can only ran, because it's past tents.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
