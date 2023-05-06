@@ -1,1 +1,1 @@
-## I once lost a banana at court but then I appealed. 
+## What did the ocean say to the shore? Nothing, it just waved.
