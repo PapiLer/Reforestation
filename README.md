@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## Where does Napoleon keep his armies? In his sleevies.
