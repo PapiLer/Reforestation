@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## When is a door not a door? When it's ajar.
