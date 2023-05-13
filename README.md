@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
