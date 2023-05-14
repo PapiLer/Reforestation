@@ -1,1 +1,3 @@
-## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
