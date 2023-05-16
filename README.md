@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
