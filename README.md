@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
