@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
