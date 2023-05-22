@@ -1,1 +1,1 @@
-## I thought my wife was joking when she said she'd leave me if I didn't stop signing "I'm A Believer"... Then I saw her face.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
