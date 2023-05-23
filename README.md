@@ -1,1 +1,1 @@
-## Where’s the bin? Dad: I haven’t been anywhere!
+## I thought about going on an all-almond diet. But that's just nuts.
