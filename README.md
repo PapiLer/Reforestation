@@ -1,1 +1,1 @@
-## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
