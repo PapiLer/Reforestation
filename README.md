@@ -1,1 +1,1 @@
-## Have you heard about the owl sanctuary job opening? It’s all night shifts but they’re all a hoot over there.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
