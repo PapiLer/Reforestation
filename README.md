@@ -1,1 +1,1 @@
-## I tried to milk a cow today, but was unsuccessful. Udder failure.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
