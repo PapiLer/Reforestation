@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
