@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
