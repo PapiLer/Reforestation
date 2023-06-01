@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## I couldn't get a reservation at the library. They were completely booked.
