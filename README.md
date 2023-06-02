@@ -1,1 +1,1 @@
-## If I could name myself after any Egyptian god, I'd be Set.
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
