@@ -1,1 +1,1 @@
-## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
+## I’ll tell you something about German sausages, they’re the wurst
