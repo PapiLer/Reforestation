@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## What creature is smarter than a talking parrot? A spelling bee.
