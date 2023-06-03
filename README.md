@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## What do you call a boomerang that won't come back? A stick.
