@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## The rotation of earth really makes my day.
