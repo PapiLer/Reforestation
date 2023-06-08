@@ -1,1 +1,1 @@
-## I've started telling everyone about the benefits of eating dried grapes. It's all about raisin awareness.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
