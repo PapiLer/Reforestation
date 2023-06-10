@@ -1,1 +1,1 @@
-## What do vegetarian zombies eat? Grrrrrainnnnnssss.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
