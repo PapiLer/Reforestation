@@ -1,1 +1,1 @@
-## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
+## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
