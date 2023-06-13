@@ -1,1 +1,1 @@
-## Who did the wizard marry? His ghoul-friend
+## What kind of tree fits in your hand? A palm tree!
