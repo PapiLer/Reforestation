@@ -1,1 +1,1 @@
-## I am so good at sleeping I can do it with my eyes closed!
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
