@@ -1,1 +1,1 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
