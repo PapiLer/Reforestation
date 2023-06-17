@@ -1,1 +1,1 @@
-## I hate perforated lines, they're tearable.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
