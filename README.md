@@ -1,1 +1,1 @@
-## I tried to milk a cow today, but was unsuccessful. Udder failure.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
