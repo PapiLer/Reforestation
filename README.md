@@ -1,1 +1,1 @@
-## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+## Ever wondered why bees hum? It's because they don't know the words.
