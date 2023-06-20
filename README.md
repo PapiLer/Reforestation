@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## What do you call a dictionary on drugs? High definition.
