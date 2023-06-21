@@ -1,1 +1,2 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
+## I know he means well.
