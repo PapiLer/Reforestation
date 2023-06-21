@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## Me and my mates are in a band called Duvet. We're a cover band.
