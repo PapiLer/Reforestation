@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
