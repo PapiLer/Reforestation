@@ -1,2 +1,2 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
