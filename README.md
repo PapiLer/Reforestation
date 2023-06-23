@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## Why did the m&m go to school? Because it wanted to be a Smartie!
