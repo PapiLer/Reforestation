@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## Someone asked me to name two structures that hold water. I said "Well dam"
