@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
