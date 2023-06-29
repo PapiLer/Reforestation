@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
