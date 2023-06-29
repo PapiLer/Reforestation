@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## What do you call a dad that has fallen through the ice? A Popsicle.
