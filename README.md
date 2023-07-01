@@ -1,1 +1,1 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## What did the shy pebble wish for? That she was a little boulder.
