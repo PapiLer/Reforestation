@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## What’s brown and sounds like a bell? Dung!
