@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
