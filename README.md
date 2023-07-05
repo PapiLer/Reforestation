@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## New atoms frequently lose electrons when they fail to keep an ion them.
