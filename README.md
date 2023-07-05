@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
