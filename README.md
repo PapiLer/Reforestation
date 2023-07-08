@@ -1,1 +1,1 @@
-## A Skeleton walked into a bar he said I need a beer and a mop
+## Why do crabs never give to charity? Because they’re shellfish.
