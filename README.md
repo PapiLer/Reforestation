@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## This furniture store keeps emailing me, all I wanted was one night stand!
