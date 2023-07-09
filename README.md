@@ -1,1 +1,1 @@
-## Why are basketball players messy eaters? Because they are always dribbling.
+## What do you call a duck that gets all A's? A wise quacker.
