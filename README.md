@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## What does a female snake use for support? A co-Bra!
