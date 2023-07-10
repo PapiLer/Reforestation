@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## A farmer had 297 cows, when he rounded them up, he found he had 300
