@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
