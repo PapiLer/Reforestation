@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
