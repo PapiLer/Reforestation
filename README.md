@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## What did the grape do when he got stepped on? He let out a little wine.
