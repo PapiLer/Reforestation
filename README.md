@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
