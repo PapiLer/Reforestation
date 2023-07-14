@@ -1,1 +1,1 @@
-## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
