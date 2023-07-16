@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
