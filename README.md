@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Toasters were the first form of pop-up notifications.
