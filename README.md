@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## Why are basketball players messy eaters? Because they are always dribbling.
