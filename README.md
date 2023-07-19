@@ -1,1 +1,1 @@
-## Archaeology really is a career in ruins.
+## Bad at golf? Join the club.
