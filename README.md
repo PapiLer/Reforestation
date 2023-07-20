@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
