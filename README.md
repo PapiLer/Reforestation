@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## I had a dream that I was a muffler last night. I woke up exhausted!
