@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
