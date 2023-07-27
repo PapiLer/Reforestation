@@ -1,1 +1,1 @@
-## What did the sea say to the sand? "We have to stop meeting like this."
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
