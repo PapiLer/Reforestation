@@ -1,1 +1,2 @@
-## Why was it called the dark ages? Because of all the knights. 
+## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
+## I know he means well.
