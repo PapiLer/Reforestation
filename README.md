@@ -1,2 +1,1 @@
-## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
-## I know he means well.
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
