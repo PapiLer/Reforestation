@@ -1,1 +1,1 @@
-## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
+## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
