@@ -1,1 +1,1 @@
-## Someone asked me to name two structures that hold water. I said "Well dam"
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
