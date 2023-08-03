@@ -1,1 +1,1 @@
-## Animal Fact #25: Most bobcats are not named bob.
+## A cannibal is someone who is fed up with people.
