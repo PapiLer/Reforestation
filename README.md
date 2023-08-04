@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
