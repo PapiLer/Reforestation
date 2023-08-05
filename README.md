@@ -1,1 +1,2 @@
-## What do you call a boomerang that won't come back? A stick.
+## What's the difference between a seal and a sea lion?
+## An ion! 
