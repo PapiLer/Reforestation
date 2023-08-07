@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
