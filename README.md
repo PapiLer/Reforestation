@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## Why can't a bicycle stand on its own? It's two-tired.
