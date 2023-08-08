@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## What don't watermelons get married? Because they cantaloupe.
