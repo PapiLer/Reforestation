@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## A steak pun is a rare medium well done.
