@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
