@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## I was thinking about moving to Moscow but there is no point Russian into things.
