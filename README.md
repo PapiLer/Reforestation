@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
