@@ -1,1 +1,1 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## What did the shy pebble wish for? That she was a little boulder.
