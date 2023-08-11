@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## It doesn't matter how much you push the envelope. It will still be stationary.
