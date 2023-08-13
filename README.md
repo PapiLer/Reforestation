@@ -1,1 +1,1 @@
-## I once lost a banana at court but then I appealed. 
+## Our wedding was so beautiful, even the cake was in tiers.
