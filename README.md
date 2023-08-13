@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
