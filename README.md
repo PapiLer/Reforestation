@@ -1,1 +1,1 @@
-## Past, present, and future walked into a bar.... It was tense.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
