@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## Where do hamburgers go to dance? The meat-ball.
