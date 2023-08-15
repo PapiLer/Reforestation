@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
