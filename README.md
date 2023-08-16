@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
