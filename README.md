@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
