@@ -1,1 +1,1 @@
-## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
