@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
