@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Why is Peter Pan always flying? Because he Neverlands.
