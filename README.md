@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
