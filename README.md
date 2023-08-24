@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## People are shocked to discover I have a police record but I love their greatest hits!
