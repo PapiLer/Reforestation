@@ -1,1 +1,1 @@
-## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
