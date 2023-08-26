@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
