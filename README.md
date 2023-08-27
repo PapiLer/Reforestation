@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## I had a dream that I was a muffler last night. I woke up exhausted!
