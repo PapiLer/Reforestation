@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## How does a scientist freshen their breath? With experi-mints!
