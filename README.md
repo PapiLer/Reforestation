@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
