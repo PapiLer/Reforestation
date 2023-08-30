@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
