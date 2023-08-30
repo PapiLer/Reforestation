@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
