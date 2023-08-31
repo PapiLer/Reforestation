@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
