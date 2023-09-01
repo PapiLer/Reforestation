@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
