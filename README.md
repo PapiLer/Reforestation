@@ -1,1 +1,1 @@
-## You will never guess what Elsa did to the balloon. She let it go.
+## Why do cows wear bells? Because their horns don't work.
