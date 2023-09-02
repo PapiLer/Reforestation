@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
