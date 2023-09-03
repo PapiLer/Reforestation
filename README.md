@@ -1,1 +1,1 @@
-## If a child refuses to sleep during nap time, are they guilty of resisting a rest?
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
