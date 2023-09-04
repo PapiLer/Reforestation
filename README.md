@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
