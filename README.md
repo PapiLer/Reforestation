@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
