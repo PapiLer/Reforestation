@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
