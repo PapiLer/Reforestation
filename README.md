@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
