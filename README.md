@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
