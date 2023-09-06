@@ -1,1 +1,1 @@
-## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
+## Why do we tell actors to “break a leg?” Because every play has a cast.
