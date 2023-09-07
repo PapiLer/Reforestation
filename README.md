@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
