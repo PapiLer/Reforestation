@@ -1,1 +1,1 @@
-## Dad I’m hungry’ … ‘Hi hungry I’m dad
+## Why do ducks make great detectives? They always quack the case.
