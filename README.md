@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## What animal is always at a game of cricket? A bat.
