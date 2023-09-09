@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
