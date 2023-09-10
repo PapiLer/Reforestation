@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
