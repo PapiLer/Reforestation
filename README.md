@@ -1,1 +1,1 @@
-## Can I watch the TV? Dad: Yes, but don’t turn it on.
+## What do you get when you cross a snowman with a vampire? Frostbite.
