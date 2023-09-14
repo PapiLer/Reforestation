@@ -1,1 +1,1 @@
-## I wanted to be a tailor but I didn't suit the job
+## Why did the kid cross the playground? To get to the other slide.
