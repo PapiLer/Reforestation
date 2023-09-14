@@ -1,1 +1,1 @@
-## Milk is also the fastest liquid on earth – its pasteurized before you even see it
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
