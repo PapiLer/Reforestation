@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## I wanted to be a tailor but I didn't suit the job
