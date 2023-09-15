@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
