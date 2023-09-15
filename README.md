@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
