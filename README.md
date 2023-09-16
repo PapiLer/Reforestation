@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## Did you know that ghosts call their true love their ghoul-friend?
