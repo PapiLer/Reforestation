@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
