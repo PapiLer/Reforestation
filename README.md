@@ -1,1 +1,2 @@
-## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
