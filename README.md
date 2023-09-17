@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## Why does Superman get invited to dinners? Because he is a Supperhero.
