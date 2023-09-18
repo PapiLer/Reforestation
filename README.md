@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
