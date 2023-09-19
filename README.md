@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
