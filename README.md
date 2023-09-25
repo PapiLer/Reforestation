@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## I gave all my dead batteries away today, free of charge.
