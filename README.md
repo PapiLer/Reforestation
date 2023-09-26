@@ -1,1 +1,2 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## What do you do when you see a space man?
+## Park your car, man.
