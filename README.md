@@ -1,1 +1,1 @@
-## What do you call an Argentinian with a rubber toe? Roberto
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
