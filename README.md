@@ -1,1 +1,1 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## Why did the tree go to the dentist? It needed a root canal.
