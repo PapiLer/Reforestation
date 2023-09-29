@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## What's blue and not very heavy?  Light blue.
