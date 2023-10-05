@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## What did one snowman say to the other snow man? Do you smell carrot?
