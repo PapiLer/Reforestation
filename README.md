@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
