@@ -1,1 +1,2 @@
-## How was the snow globe feeling after the storm? A little shaken.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
