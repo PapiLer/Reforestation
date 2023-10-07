@@ -1,2 +1,1 @@
-## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
-## I know he means well.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
