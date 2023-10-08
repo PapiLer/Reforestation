@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
