@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## How come the stadium got hot after the game? Because all of the fans left.
