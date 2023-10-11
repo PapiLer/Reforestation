@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## Mountains aren't just funny, they are hill areas
