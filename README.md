@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## Why do bees have sticky hair? Because they use honey combs!
