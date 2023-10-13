@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## What did the sea say to the sand? "We have to stop meeting like this."
