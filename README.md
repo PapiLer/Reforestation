@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## What has three letters and starts with gas? A Car.
