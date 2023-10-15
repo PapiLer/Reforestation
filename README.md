@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
