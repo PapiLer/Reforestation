@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
