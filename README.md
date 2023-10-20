@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## I’ll tell you something about German sausages, they’re the wurst
