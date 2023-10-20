@@ -1,1 +1,3 @@
-## I won an argument with a weather forecaster once. His logic was cloudy...
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
