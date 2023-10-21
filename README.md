@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
