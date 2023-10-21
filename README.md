@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
