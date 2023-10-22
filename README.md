@@ -1,1 +1,1 @@
-## I invented a new word! Plagiarism!
+## Ever wondered why bees hum? It's because they don't know the words.
