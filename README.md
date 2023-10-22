@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
