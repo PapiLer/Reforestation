@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## Have you ever seen fruit preserves being made? It's jarring.
