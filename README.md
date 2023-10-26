@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## How do you find Will Smith in the snow?  Look for fresh prints.
