@@ -1,1 +1,1 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## Me and my mates are in a band called Duvet. We're a cover band.
