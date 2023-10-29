@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
