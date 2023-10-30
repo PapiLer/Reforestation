@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Have you ever seen fruit preserves being made? It's jarring.
