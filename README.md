@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## Where do you learn to make banana splits? At sundae school.
