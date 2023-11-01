@@ -1,1 +1,3 @@
-## What is a vampire's favorite fruit? A blood orange.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
