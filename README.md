@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## A magician was driving down the street and then he turned into a driveway.
