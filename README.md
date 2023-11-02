@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
