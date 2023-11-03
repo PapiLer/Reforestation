@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
