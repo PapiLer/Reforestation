@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## Why did the knife dress up in a suit? Because it wanted to look sharp
