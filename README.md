@@ -1,1 +1,1 @@
-## Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
