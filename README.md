@@ -1,1 +1,1 @@
-## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
+## I've got a joke about vegetables for you... but it's a bit corny.
