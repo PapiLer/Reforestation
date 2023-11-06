@@ -1,1 +1,1 @@
-## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
