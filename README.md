@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## How come a man driving a train got struck by lightning? He was a good conductor.
