@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Why do bees have sticky hair? Because they use honey combs!
