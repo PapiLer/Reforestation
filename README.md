@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
