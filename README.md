@@ -1,1 +1,1 @@
-## Where do owls go to buy their baby clothes? The owlet malls.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
