@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
