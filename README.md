@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## How many South Americans does it take to change a lightbulb? A Brazilian
