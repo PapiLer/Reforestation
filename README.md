@@ -1,1 +1,1 @@
-## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
+## What's a ninja's favorite type of shoes? Sneakers!
