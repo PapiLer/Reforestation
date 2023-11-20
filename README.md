@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## I asked a frenchman if he played video games. He said "Wii"
