@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## I’m on a whiskey diet. I’ve lost three days already.
