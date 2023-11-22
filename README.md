@@ -1,1 +1,1 @@
-## If I could name myself after any Egyptian god, I'd be Set.
+## What did the digital clock say to the grandfather clock? Look, no hands!
