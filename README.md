@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## What do you do when your bunny gets wet? You get your hare dryer.
