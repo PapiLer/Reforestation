@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## It doesn't matter how much you push the envelope. It will still be stationary.
