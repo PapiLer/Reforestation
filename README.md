@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## What’s brown and sounds like a bell? Dung!
