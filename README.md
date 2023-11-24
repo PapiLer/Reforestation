@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
