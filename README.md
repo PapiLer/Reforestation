@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
