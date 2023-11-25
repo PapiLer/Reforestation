@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## How many South Americans does it take to change a lightbulb? A Brazilian
