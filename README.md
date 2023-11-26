@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
