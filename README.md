@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## Did you hear about the Mexican train killer? He had loco motives
