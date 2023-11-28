@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## Why don't eggs tell jokes? They'd crack each other up
