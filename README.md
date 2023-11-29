@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
