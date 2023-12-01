@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
