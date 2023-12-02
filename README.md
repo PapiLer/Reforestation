@@ -1,1 +1,1 @@
-## What biscuit does a short person like? Shortbread. 
+## Why does Superman get invited to dinners? Because he is a Supperhero.
