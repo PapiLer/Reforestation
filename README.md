@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## You can't run through a camp site. You can only ran, because it's past tents.
