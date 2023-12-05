@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
