@@ -1,1 +1,1 @@
-## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
