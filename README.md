@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## “My Dog has no nose.” “How does he smell?” “Awful”
