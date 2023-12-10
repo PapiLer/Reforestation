@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
