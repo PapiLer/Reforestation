@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
