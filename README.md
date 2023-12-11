@@ -1,1 +1,1 @@
-## Why are snake races so exciting? They're always neck and neck.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
