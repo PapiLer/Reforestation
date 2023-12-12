@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## When does a joke become a dad joke? When it becomes apparent.
