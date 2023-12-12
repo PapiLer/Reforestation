@@ -1,1 +1,1 @@
-## What did the grape do when he got stepped on? He let out a little wine.
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
