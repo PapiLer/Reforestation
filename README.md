@@ -1,1 +1,1 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## The best time on a clock is 6:30--hands down.
