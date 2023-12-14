@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## People are making apocalypse jokes like there’s no tomorrow.
