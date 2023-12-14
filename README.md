@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
