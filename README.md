@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## You know that cemetery up the road? People are dying to get in there.
