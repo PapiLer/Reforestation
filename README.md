@@ -1,1 +1,3 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## What was the pumpkin’s favorite sport?
+## 
+## Squash.
