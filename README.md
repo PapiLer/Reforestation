@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## Thanks for explaining the word "many" to me. It means a lot.
