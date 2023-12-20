@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
