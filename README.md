@@ -1,1 +1,1 @@
-## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
