@@ -1,1 +1,1 @@
-## What do you do on a remote island? Try and find the TV island it belongs to.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
