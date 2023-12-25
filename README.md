@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## Where do sheep go to get their hair cut? The baa-baa shop.
