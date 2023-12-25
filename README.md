@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## I decided to sell my Hoover… well it was just collecting dust.
