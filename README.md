@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## When you have a bladder infection, urine trouble.
