@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Why did the tomato blush? Because it saw the salad dressing.
