@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
