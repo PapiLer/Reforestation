@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## I’m on a whiskey diet. I’ve lost three days already.
