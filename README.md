@@ -1,1 +1,1 @@
-## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
