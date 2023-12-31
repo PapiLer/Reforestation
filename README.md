@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
