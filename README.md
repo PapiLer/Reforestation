@@ -1,1 +1,1 @@
-## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
+## How come a man driving a train got struck by lightning? He was a good conductor.
