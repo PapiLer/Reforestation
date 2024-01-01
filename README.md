@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
