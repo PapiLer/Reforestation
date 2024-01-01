@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
