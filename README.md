@@ -1,1 +1,1 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
