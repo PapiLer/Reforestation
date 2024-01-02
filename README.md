@@ -1,1 +1,1 @@
-## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
