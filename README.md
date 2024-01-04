@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## What did Romans use to cut pizza before the rolling cutter was invented? Lil Caesars
