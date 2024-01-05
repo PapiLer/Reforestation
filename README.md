@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## What kind of dinosaur loves to sleep? A stega-snore-us.
