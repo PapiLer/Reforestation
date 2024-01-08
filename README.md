@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## Did you know that ghosts call their true love their ghoul-friend?
