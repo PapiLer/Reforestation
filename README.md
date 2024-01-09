@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
