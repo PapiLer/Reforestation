@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
