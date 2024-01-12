@@ -1,1 +1,3 @@
-## I once lost a banana at court but then I appealed. 
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
