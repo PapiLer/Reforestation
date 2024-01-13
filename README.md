@@ -1,1 +1,1 @@
-## What lies at the bottom of the ocean and twitches? A nervous wreck.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
