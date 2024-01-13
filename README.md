@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
