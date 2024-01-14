@@ -1,2 +1,1 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
