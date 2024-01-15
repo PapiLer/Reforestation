@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## I’ll tell you something about German sausages, they’re the wurst
