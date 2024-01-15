@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## It doesn't matter how much you push the envelope. It will still be stationary.
