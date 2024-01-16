@@ -1,1 +1,1 @@
-## Do I enjoy making courthouse puns? Guilty
+## I asked a frenchman if he played video games. He said "Wii"
