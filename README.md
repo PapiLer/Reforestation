@@ -1,1 +1,1 @@
-## Who did the wizard marry? His ghoul-friend
+## What do you call a careful wolf? Aware wolf.
