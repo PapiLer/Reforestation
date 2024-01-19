@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## What's orange and sounds like a parrot? A Carrot.
