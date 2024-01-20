@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
