@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
