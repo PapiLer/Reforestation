@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## How do you make a hankie dance? Put a little boogie in it.
