@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
