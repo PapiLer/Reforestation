@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
