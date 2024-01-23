@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
