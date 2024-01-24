@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## I got fired from a florist, apparently I took too many leaves.
