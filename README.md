@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
