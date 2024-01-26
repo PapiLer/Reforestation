@@ -1,1 +1,1 @@
-## Waking up this morning was an eye-opening experience.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
