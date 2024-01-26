@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
