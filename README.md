@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
