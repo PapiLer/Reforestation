@@ -1,1 +1,1 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
