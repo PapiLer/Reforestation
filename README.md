@@ -1,1 +1,2 @@
-## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
+## Why did Mozart kill all his chickens?
+## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
