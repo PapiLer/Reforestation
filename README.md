@@ -1,2 +1,1 @@
-## Why did Mozart kill all his chickens?
-## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
