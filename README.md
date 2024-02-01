@@ -1,1 +1,1 @@
-## This is my step ladder. I never knew my real ladder.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
