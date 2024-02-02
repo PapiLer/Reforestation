@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
