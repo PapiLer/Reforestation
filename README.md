@@ -1,1 +1,1 @@
-## Want to hear my pizza joke? Never mind, it's too cheesy.
+## I've got a joke about vegetables for you... but it's a bit corny.
