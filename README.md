@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## Why is the ocean always blue? Because the shore never waves back.
