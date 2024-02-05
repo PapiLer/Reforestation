@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
