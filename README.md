@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## What's orange and sounds like a parrot? A Carrot.
