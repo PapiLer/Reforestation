@@ -1,1 +1,1 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## What does a clock do when it's hungry? It goes back four seconds!
