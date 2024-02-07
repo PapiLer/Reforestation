@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## I've got a joke about vegetables for you... but it's a bit corny.
