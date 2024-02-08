@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
