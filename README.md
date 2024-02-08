@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Ever wondered why bees hum? It's because they don't know the words.
