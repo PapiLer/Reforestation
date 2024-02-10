@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## What did the shy pebble wish for? That she was a little boulder.
