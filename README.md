@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
