@@ -1,1 +1,1 @@
-## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
+## I dreamed about drowning in an ocean made out of orange soda last night. It took me a while to work out it was just a Fanta sea.
