@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
