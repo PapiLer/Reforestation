@@ -1,1 +1,1 @@
-## What happens to a frog's car when it breaks down? It gets toad.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
