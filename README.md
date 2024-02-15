@@ -1,2 +1,1 @@
-##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
-## 
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
