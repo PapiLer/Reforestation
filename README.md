@@ -1,2 +1,2 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
