@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
