@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## Why don't eggs tell jokes? They'd crack each other up
