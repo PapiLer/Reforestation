@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
