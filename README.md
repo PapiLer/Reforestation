@@ -1,1 +1,1 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## My first time using an elevator was an uplifting experience. The second time let me down.
