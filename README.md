@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## How do you make a hankie dance? Put a little boogie in it.
