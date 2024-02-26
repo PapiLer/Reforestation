@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
