@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## Why are snake races so exciting? They're always neck and neck.
