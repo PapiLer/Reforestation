@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## Have you heard of the band 1023MB? They haven't got a gig yet.
