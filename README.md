@@ -1,1 +1,1 @@
-## Why are snake races so exciting? They're always neck and neck.
+## What animal is always at a game of cricket? A bat.
