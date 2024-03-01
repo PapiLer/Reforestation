@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Remember, the best angle to approach a problem from is the "try" angle.
