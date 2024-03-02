@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## Where do young cows eat lunch? In the calf-ateria.
