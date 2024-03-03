@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## Milk is also the fastest liquid on earth – its pasteurized before you even see it
