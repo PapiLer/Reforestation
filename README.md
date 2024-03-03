@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
