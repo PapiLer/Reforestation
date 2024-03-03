@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## People are making apocalypse jokes like there’s no tomorrow.
