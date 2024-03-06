@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
