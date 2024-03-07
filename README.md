@@ -1,1 +1,1 @@
-## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
+## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
