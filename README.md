@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## Why did the melons plan a big wedding? Because they cantaloupe!
