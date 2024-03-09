@@ -1,1 +1,1 @@
-## My wife said I was immature. So I told her to get out of my fort.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
