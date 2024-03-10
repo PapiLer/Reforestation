@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
