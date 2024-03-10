@@ -1,1 +1,1 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
