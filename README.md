@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## Recent survey revealed 6 out of 7 dwarf's aren't happy.
