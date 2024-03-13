@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
