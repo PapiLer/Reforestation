@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## What creature is smarter than a talking parrot? A spelling bee.
