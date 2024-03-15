@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## R.I.P. boiled water. You will be mist.
