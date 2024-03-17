@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
