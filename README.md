@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## What do you do when your bunny gets wet? You get your hare dryer.
