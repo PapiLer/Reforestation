@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
