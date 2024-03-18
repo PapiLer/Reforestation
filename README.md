@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
