@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## Where do rabbits go after they get married? On a bunny-moon.
