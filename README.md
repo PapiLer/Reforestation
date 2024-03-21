@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## I couldn't get a reservation at the library. They were completely booked.
