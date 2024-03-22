@@ -1,1 +1,3 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
