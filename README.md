@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
