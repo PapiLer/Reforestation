@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## An apple a day keeps the bullies away. If you throw it hard enough.
