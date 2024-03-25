@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## What did one plate say to the other plate? Dinner is on me!
