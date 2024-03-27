@@ -1,1 +1,1 @@
-## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
