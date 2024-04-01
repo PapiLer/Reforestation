@@ -1,1 +1,1 @@
-## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
+## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
