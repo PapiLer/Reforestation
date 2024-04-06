@@ -1,1 +1,1 @@
-## I accidentally took my cats meds last night. Don’t ask meow.
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
