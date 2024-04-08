@@ -1,1 +1,2 @@
-## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
+## What's the difference between a seal and a sea lion?
+## An ion! 
