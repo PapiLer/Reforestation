@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Conjunctivitis.com – now that’s a site for sore eyes.
