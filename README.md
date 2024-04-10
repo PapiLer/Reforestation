@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## I was going to learn how to juggle, but I didn't have the balls.
