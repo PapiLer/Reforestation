@@ -1,1 +1,1 @@
-## "Dad, do you think it's going to snow this winter?" "I dont know, its all up in the air"
+## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
