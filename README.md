@@ -1,1 +1,1 @@
-## I used to work for an origami company but they folded.
+## I used to be a banker, but I lost interest.
