@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
