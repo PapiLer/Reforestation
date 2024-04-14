@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## Is the pool safe for diving? It deep ends.
