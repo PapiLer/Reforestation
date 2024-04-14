@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
