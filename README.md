@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
