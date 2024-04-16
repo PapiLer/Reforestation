@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Why did the sentence fail the driving test? It never came to a full stop.
