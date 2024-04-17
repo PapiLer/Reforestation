@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
