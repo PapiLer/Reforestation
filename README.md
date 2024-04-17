@@ -1,2 +1,1 @@
-## I finally bought the limited edition Thesaurus that I've always wanted. When I opened it, all the pages were blank.
-## I have no words to describe how angry I am.
+## Why is the ocean always blue? Because the shore never waves back.
