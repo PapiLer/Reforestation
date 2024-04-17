@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
