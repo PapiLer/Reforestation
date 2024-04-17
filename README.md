@@ -1,1 +1,2 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## I finally bought the limited edition Thesaurus that I've always wanted. When I opened it, all the pages were blank.
+## I have no words to describe how angry I am.
