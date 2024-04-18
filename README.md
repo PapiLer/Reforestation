@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## What did the piece of bread say to the knife? Butter me up.
