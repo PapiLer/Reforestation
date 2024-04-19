@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
