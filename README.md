@@ -1,1 +1,1 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## I’m on a whiskey diet. I’ve lost three days already.
