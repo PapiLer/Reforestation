@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## I gave all my dead batteries away today, free of charge.
