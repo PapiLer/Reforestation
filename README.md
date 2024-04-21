@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
