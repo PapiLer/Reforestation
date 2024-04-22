@@ -1,1 +1,1 @@
-## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
+## Chances are if you' ve seen one shopping center, you've seen a mall.
