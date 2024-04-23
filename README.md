@@ -1,1 +1,1 @@
-## What do you call a crowd of chess players bragging about their wins in a hotel lobby? Chess nuts boasting in an open foyer.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
