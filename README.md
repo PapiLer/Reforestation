@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
