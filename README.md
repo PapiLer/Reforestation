@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
