@@ -1,1 +1,1 @@
-## Where do owls go to buy their baby clothes? The owlet malls.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
