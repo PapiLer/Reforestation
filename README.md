@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
