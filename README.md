@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## New atoms frequently lose electrons when they fail to keep an ion them.
