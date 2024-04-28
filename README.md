@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
