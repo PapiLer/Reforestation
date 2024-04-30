@@ -1,1 +1,1 @@
-## What happens when you anger a brain surgeon? They will give you a piece of your mind.
+## Some people eat light bulbs. They say it's a nice light snack.
