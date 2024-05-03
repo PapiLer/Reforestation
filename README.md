@@ -1,1 +1,1 @@
-## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
+## What did the Red light say to the Green light? Don't look at me I'm changing!
