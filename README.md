@@ -1,1 +1,1 @@
-## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
