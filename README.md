@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## Two silk worms had a race. They ended up in a tie.
