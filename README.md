@@ -1,1 +1,1 @@
-## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
