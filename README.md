@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
