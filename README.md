@@ -1,1 +1,1 @@
-## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
