@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## Why didn’t the skeleton cross the road? Because he had no guts.
