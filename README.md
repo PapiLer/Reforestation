@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## What did the sea say to the sand? "We have to stop meeting like this."
