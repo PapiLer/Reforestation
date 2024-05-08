@@ -1,1 +1,1 @@
-## Animal Fact #25: Most bobcats are not named bob.
+## Two dyslexics walk into a bra.
