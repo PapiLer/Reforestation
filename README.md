@@ -1,1 +1,2 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
