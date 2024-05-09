@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## Have you heard about the owl sanctuary job opening? It’s all night shifts but they’re all a hoot over there.
