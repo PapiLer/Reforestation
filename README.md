@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## I was going to learn how to juggle, but I didn't have the balls.
