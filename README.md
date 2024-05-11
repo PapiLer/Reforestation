@@ -1,1 +1,1 @@
-## "Dad, do you think it's going to snow this winter?" "I dont know, its all up in the air"
+## What did the digital clock say to the grandfather clock? Look, no hands!
