@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Why is it so windy inside an arena? All those fans.
