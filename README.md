@@ -1,1 +1,1 @@
-## Did you know that protons have mass? I didn't even know they were catholic.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
