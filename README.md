@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
