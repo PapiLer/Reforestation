@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
