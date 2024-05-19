@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
