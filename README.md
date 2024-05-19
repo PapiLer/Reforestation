@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## What do you call a fake noodle? An impasta.
