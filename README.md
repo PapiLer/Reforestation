@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## I knew a guy who collected candy canes, they were all in mint condition
