@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## What do you call a magician who has lost their magic? Ian.
