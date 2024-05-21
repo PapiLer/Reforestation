@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## I started a new business making yachts in my attic this year...the sails are going through the roof
