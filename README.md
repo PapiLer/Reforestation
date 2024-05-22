@@ -1,1 +1,1 @@
-## At the boxing match, the dad got into the popcorn line and the line for hot dogs, but he wanted to stay out of the punchline.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
