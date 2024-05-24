@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## I used to work for an origami company but they folded.
