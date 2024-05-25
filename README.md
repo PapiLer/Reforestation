@@ -1,1 +1,1 @@
-## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
