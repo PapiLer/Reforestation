@@ -1,1 +1,1 @@
-## What do you call a group of disorganized cats? A cat-tastrophe.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
