@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## You can't run through a camp site. You can only ran, because it's past tents.
