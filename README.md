@@ -1,1 +1,1 @@
-## Every night at 11:11, I make a wish that someone will come fix my broken clock.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
