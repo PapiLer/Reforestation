@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## I have kleptomania, but when it gets bad, I take something for it.
