@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
