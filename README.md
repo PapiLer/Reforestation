@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## I was thinking about moving to Moscow but there is no point Russian into things.
