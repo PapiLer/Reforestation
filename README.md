@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## What do you call a cow with two legs? Lean beef.
