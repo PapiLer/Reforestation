@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
