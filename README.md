@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
