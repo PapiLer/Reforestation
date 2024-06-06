@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## What do you do when your bunny gets wet? You get your hare dryer.
