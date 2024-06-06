@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
