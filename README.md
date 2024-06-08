@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
