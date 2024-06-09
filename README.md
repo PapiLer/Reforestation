@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
