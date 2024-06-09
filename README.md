@@ -1,1 +1,1 @@
-## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+## A girl once asked me what my heart desired, apparently blood, oxygen and neural messages were all wrong answers
