@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
