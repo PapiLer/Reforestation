@@ -1,1 +1,1 @@
-## A girl once asked me what my heart desired, apparently blood, oxygen and neural messages were all wrong answers
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
