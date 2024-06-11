@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## Why do bees have sticky hair? Because they use honey combs!
