@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## What don't watermelons get married? Because they cantaloupe.
