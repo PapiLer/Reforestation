@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
