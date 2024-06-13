@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
