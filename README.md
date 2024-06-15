@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## Shout out to my grandma, that's the only way she can hear.
