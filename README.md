@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## What's orange and sounds like a parrot? A Carrot.
