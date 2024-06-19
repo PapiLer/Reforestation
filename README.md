@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Is the pool safe for diving? It deep ends.
