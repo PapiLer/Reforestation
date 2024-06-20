@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## Why do fish live in salt water? Because pepper makes them sneeze!
