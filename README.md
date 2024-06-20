@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
