@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## Just read a few facts about frogs. They were ribbiting.
