@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## What's a ninja's favorite type of shoes? Sneakers!
