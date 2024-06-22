@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
