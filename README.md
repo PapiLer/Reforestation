@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## I ate a clock yesterday. It was so time consuming.
